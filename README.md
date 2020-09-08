@@ -1,2 +1,2 @@
 # hello-world
-This is my hello-world tutorial page
+Hi! This is Lakayla. I enjoy nature. I like to take walks and just enjoy the fresh air.
